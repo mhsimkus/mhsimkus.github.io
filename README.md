@@ -1,1 +1,1 @@
-[![IMAGE ALT TEXT HERE](https://img.youtube.com/vi/YOUTUBE_VIDEO_ID_HERE/0.jpg)](https://www.youtube.com/watch?v=o8os9Ojt_94)
+Welcome - please have a look around.  I am learning and welcome any feedback or advice you wish to share.  Enjoy! 
